@@ -1,0 +1,1 @@
+This will be the repository that I will fill full with my projects and stuff I'm doing at the moment. Except from stuff that I plan on releasing of course.
